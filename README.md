@@ -1,1 +1,1 @@
-# README
+Projemin fikri:İklim değişikliği sorunu
